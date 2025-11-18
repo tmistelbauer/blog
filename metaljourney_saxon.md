@@ -207,4 +207,171 @@ https://music.youtube.com/watch?v=mLTOhGyUOeM
 
 ---
 
+14/23 #Metalhead marks #Saxon's last record of the 20th century.
+
+From what I learn from Wikipedia, things started to improve record sale wise... Seems like the 90s were a tough time for #Saxon.
+
+The title track #Metalhead starts off great!
+
+https://music.youtube.com/watch?v=3dvxZju0CPo
+
+---
+
+#SexySaxon #Metaljourney update:
+
+I really like that with #Metalhead #Saxon got much heavier.
+
+#PissOff for example is a great heavy tune 🤘 
+
+https://music.youtube.com/watch?v=xGWj2_1Xztk
+
+---
+
+15/23 is #Saxon's first album of the 21st century. It is called #KillingGround and was release in September 2001.
+
+Let's see if #Saxon continues their heavier path in my #SexySaxon #Metaljourney.
+
+The title track is killer! I hear doublebass, nice! 🤘 
+
+https://music.youtube.com/watch?v=TkNU628Pf1Y
+
+---
+
+#SexySaxon #Metaljourney update:
+
+#DragonsLair is 🔥 This one goes directly into my "Heavy" playlist.
+
+#Saxon fun fact: Killing Ground was their first album that entered the French charts. Sacre bleu! 🥖 🇫🇷 
+
+https://music.youtube.com/watch?v=d6p_KhY_Yhs
+
+---
+
+16/23 on my #SexySaxon #Metaljourney is #Saxon's 2004 release #Lionheart.
+
+I really like what they did from #Metalhead onwards, let's see if they continue this path.
+
+Fun fact: the title is refering to Richard the Lionheart, who was once captured in a castle in 🇦🇹 .
+
+#nowplaying #WitchfinderGeneral, which is an absolute banger 🤘 
+
+https://music.youtube.com/watch?v=Gbo0gSqQjhw
+
+---
+
+17/23 now onto #Saxon's 2007 release #TheInnerSanctum, wich is their first album to enter the UK album charts since 1988s #Destiny.
+
+Slowly but surely I am approaching the later phase of #Saxon, still 5 records to go in my #SexySaxon #Metaljourney though.
+
+Anyways, #nowplaying #NeedForSpeed
+
+https://music.youtube.com/watch?v=HqXsuaw2Iwc&feature=share
+
+---
+
+#SexySaxon #Metaljourney update.
+
+I'll be frank, after almost 3 days of listening exclusively to #Saxon, my motivation fades a bit. Boy, they do have an extensive discography...
+
+Anyone here to cheering me on?
+
+Here's Attila the Hun coming for you:
+
+https://music.youtube.com/watch?v=4rxzXmXgjpY&feature=share
+
+---
+
+18/23 is #IntoTheLabyrinth from 2009. This is #Saxon's first album that entered the Austrian charts 🇦🇹 
+
+This is the second in a row that doesn't contain a title track... 🤔 
+
+Can a song called "Batallions of Steel" be bad? I don't think so, so here you go:
+
+https://music.youtube.com/watch?v=ocgCnlfUOY4
+
+---
+
+19/24 is a #CallToArms in my #SexySaxon #Metaljourney!
+
+The opener Hammer Of The Gods sure takes no prisoners, #Saxon really knows how to open an album 🤘 
+
+This one did NOT enter the French charts (come on 🇫🇷 ) after 4 consecutive entries, but ranked 18 in Germany (hell yeah 🇩🇪 ), which meant an all time high in (major) charts since 1985!
+
+https://music.youtube.com/watch?v=VHoyFCW1W1E
+
+---
+
+Oh, that's a good one:
+
+#nowplaying: #Saxon - Afterburner
+
+https://music.youtube.com/watch?v=prJTVP6Gik8
+
+---
+
+20/23 on my #SexySaxon #Metaljourney is #Sacrifice
+
+It starts off with a tribally intro and then BOOM 💥 
+
+What a great title track!
+
+#nowplaing #Saxon - Sacrifice 
+
+https://music.youtube.com/watch?v=MgXYLKSHKf8&feature=share
+
+---
+
+21/23 is #Saxon's 2015 release #BatteringRam
+
+I was supposed to see them in 2016 at this very tour, supporting #Motörhead. Well, that sadly never happened...
+
+And what a f***ing shame that is, because Battering Ram is something else, WOW!
+Honestly, I did not expect this in my #SexySexon #Metaljourney!
+
+https://music.youtube.com/watch?v=x2aKsU3TMTE&feature=share
+
+---
+
+22/23 #Thunderbold from 2018 is the second to last album on my  #SexySaxon #Metaljourney 
+
+The last albums, espacially from Call To Arms onwards have been absolutely fantastic 🤘 
+
+#nowplaying #Saxon - Thunderbolt
+
+https://music.youtube.com/watch?v=sXixriUgAf4
+
+---
+
+#SexySaxon #Metaljourney update:
+
+#nowplaying They Played Rock And Roll on https://music.youtube.com/watch?v=FlhlO1U5F5c&feature=share
+
+What a nice hommage to Lemmy and Motörhead. 🤘
+
+https://music.youtube.com/watch?v=FlhlO1U5F5c
+
+---
+
+23/23 Here we are, the grand finale of my #SexySaxon #Metaljourney!
+
+This has been a long ride, it took me 3 full days of exclusively listening to #Saxon.
+
+https://music.youtube.com/watch?v=N07ArmWtQw8
+
+---
+
+#SexySaxon #Metaljourney: Epilogue
+
+This was intense, 23 Albums in 3 days is no joke. Esp. when you need to work too 😂 
+
+My conlcusion: #Saxon is awesome! 
+
+How could I miss this for so long? Biff has an incredible voice!
+
+The only albums I didn't like were the ones their "hair metal" era in the 80s.
+
+Power & the Glory was one of my favourites, also Call To Arms and Battering Ram were absolute killers.
+
+I guess I need some days off until I do another deep dive. 
+But I will do anohter one! 🤘
 

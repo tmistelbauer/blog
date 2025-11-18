@@ -2,11 +2,11 @@ https://metalhead.club/@derthomas/109348394786461793
 
 ---
 
+![Saxon (1979)](https://coverartarchive.org/release-group/5f94c71e-074e-3d33-98e8-338548660902/front)
+
 It is settled, my next metal journey will be Saxon!
 
-Oh boy, they have an extensive catalogue, I guess this will take ma a while. Nontheless, I will listen to all of their studio albums in chronological order, starting with their 1979 self titled debut Saxon.
-
-![Saxon (1979)](https://placehold.co/400x400/000000/FFFFFF/png?text=Saxon+(1979))
+Oh boy, they have an extensive catalogue, I guess this will take ma a while. Nontheless, I will listen to all of their studio albums in chronological order, starting with their 1979 self titled debut Saxon .
 
 First note: Is it just me or does Stallions Of The Highway have a very Motörheady vibe?
 
@@ -14,7 +14,7 @@ First note: Is it just me or does Stallions Of The Highway have a very Motörhea
 
 ---
 
-![Wheels Of Steel](https://placehold.co/400x400/000000/FFFFFF/png?text=Wheels+Of+Steel)
+![Wheels Of Steel](https://coverartarchive.org/release-group/27e6e91b-8403-357b-936f-08d668232b43/front)
 
 Round 2 of my #SexySaxon metal journey: we are now in 1980 and the name of the album is Wheels Of Steel.
 
@@ -34,7 +34,7 @@ You can tell that I don't know anything about Saxon 🫣
 
 ---
 
-![Strong Arm Of The Law](https://placehold.co/400x400/000000/FFFFFF/png?text=Strong+Arm+Of+The+Law)
+![Strong Arm Of The Law](https://coverartarchive.org/release-group/d74496e5-ec54-3799-bd96-5a7bbffcd14d/front)
 
 My #SexySaxon metal journey continues with their 2nd 1980 release Strong Arm Of The Law, the 3rd Sacon album.
 
@@ -46,7 +46,7 @@ Still has strong Motörhead vibes, I guess that will stay?
 
 ---
 
-![Denim And Leather](https://placehold.co/400x400/000000/FFFFFF/png?text=Denim+And+Leather)
+![Denim And Leather](https://coverartarchive.org/release/521d83b6-771d-3392-bad2-4093ec48a607/front)
 
 4/23 is Denim And Leather from 1981
 
@@ -66,7 +66,7 @@ That's a good one BTW:
 
 ---
 
-![Power And The Glory](https://placehold.co/400x400/000000/FFFFFF/png?text=Power+And+The+Glory)
+![Power And The Glory](https://coverartarchive.org/release/abb58455-0b17-4b8e-a332-ea4b37866969/front)
 
 5/23 is Power And The Glory from 1983.
 
@@ -92,7 +92,7 @@ Very interesting record so far! Maybe even the best on my #SexySaxon metal journ
 
 ---
 
-![Crusader](https://placehold.co/400x400/000000/FFFFFF/png?text=Crusader)
+![Crusader](https://coverartarchive.org/release-group/00d13ace-8768-38e5-91a3-c5547a97482d/front)
 
 6/23 on my #SexySaxon metal journey is Crusader, released in 1984, the year I was born (so it has to be a good one).
 
@@ -104,7 +104,7 @@ I guess with Crusader we are deep in Saxon's Power Metal phase that started with
 
 ---
 
-![Innocence Is No Excuse](https://placehold.co/400x400/000000/FFFFFF/png?text=Innocence+Is+No+Excuse)
+![Innocence Is No Excuse](https://coverartarchive.org/release-group/3c07aba5-8f04-3b97-9daf-eb571099a08b/front)
 
 7/23 is Innocence Is No Excuse from 1985 and it has a very different album cover compared to their other ones.
 
@@ -120,7 +120,7 @@ Yep, Saxon's Innocence Is No Excuse is as 80s as its album cover.
 
 ---
 
-![Rock The Nations](https://placehold.co/400x400/000000/FFFFFF/png?text=Rock+The+Nations)
+![Rock The Nations](https://coverartarchive.org/release/3451a865-240e-4873-bc36-5b3e43f42963/front)
 
 8/23 is Saxon's 1986 release Rock The Nations
 
@@ -140,14 +140,14 @@ But Party Til You Puke is actually funny 😂
 
 ---
 
-![Destiny](https://placehold.co/400x400/000000/FFFFFF/png?text=Destiny)
+![Destiny](https://coverartarchive.org/release-group/77d89dad-32a1-3285-b9c4-1a343b34be8a/front)
 
 Hmmmpf... no, I didn't like Destiny.
 I can see why people might like it though.
 
 I will continue my #SexySaxon metal journey after a short work break. I will be back with Solid Ball Of Rock soon!
 
-![Solid Ball Of Rock](https://placehold.co/400x400/000000/FFFFFF/png?text=Solid+Ball+Of+Rock)
+![Solid Ball Of Rock](https://coverartarchive.org/release/b7caab9c-1dd6-4ff9-8b1c-429ce7898aba/front)
 
 10/23 we fast forward 3 years and are now at Saxon's 1991 release Solid Ball Of Rock.
 
@@ -171,7 +171,7 @@ Are there any veteran Saxon fans in here? How did you feel about the album when 
 
 ---
 
-![Forever Free](https://placehold.co/400x400/000000/FFFFFF/png?text=Forever+Free)
+![Forever Free](https://coverartarchive.org/release-group/e2925f29-269b-31d4-929c-492b10125c2a/front)
 
 11/23 of my #SexySaxon metal journey is Forever Free, which continues the path taken with Solid Ball Of Rock. 
 Edgy, I like it 🤘 
@@ -188,7 +188,7 @@ What a shame, Solid Ball Of Rock and Forever Free are really fun 🤘
 
 ---
 
-![Dogs Of War](https://placehold.co/400x400/000000/FFFFFF/png?text=Dogs+Of+War)
+![Dogs Of War](https://coverartarchive.org/release-group/0a547a75-b2a8-341a-8f14-69293e6de28c/front)
 
 12/23 is Dogs Of War and I am now halfway through Saxon's huge catalogue on my #SexySaxon metal journey.
 
@@ -210,7 +210,7 @@ Let's hear why...
 
 ---
 
-![Unleash The Beast](https://placehold.co/400x400/000000/FFFFFF/png?text=Unleash+The+Beast)
+![Unleash The Beast](https://coverartarchive.org/release-group/6b388830-2049-3141-a49b-012421221055/front)
 
 13/23 of my #SexySaxon metal journey is Unleash The Beast from 1997.
 
@@ -232,7 +232,7 @@ I didn't like the ballads though, but the closer is killer track!
 
 ---
 
-![Metalhead](https://placehold.co/400x400/000000/FFFFFF/png?text=Metalhead)
+![Metalhead](https://coverartarchive.org/release-group/743e5f1a-18e6-32d4-891b-25efe31a5ab3/front)
 
 14/23 Metalhead marks Saxon's last record of the 20th century.
 
@@ -254,7 +254,7 @@ Piss Off for example is a great heavy tune 🤘
 
 ---
 
-![Killing Ground](https://placehold.co/400x400/000000/FFFFFF/png?text=Killing+Ground)
+![Killing Ground](https://coverartarchive.org/release/7b8ed737-b5ce-3c2b-955b-9727720f7a0d/front)
 
 15/23 is Saxon's first album of the 21st century. It is called Killing Ground and was release in September 2001.
 
@@ -276,7 +276,7 @@ Saxon fun fact: Killing Ground was their first album that entered the French cha
 
 ---
 
-![Lionheart](https://placehold.co/400x400/000000/FFFFFF/png?text=Lionheart)
+![Lionheart](https://coverartarchive.org/release-group/e5710860-4157-3537-87e0-41a357323606/front)
 
 16/23 on my #SexySaxon metal journey is Saxon's 2004 release Lionheart.
 
@@ -290,7 +290,7 @@ now playing Witchfinder General, which is an absolute banger 🤘
 
 ---
 
-![The Inner Sanctum](https://placehold.co/400x400/000000/FFFFFF/png?text=The+Inner+Sanctum)
+![The Inner Sanctum](https://coverartarchive.org/release-group/9c66809f-208c-3a7b-a825-70a546b2f7ba/front)
 
 17/23 now onto Saxon's 2007 release The Inner Sanctum, wich is their first album to enter the UK album charts since 1988s Destiny.
 
@@ -314,7 +314,7 @@ Here's Attila the Hun coming for you:
 
 ---
 
-![Into The Labyrinth](https://placehold.co/400x400/000000/FFFFFF/png?text=Into+The+Labyrinth)
+![Into The Labyrinth](https://coverartarchive.org/release-group/5958a408-7255-4c10-b7b0-5a9b1cc0a368/front)
 
 18/23 is Into The Labyrinth from 2009. This is Saxon's first album that entered the Austrian charts 🇦🇹 
 
@@ -326,7 +326,7 @@ Can a song called "Batallions of Steel" be bad? I don't think so, so here you go
 
 ---
 
-![Call To Arms](https://placehold.co/400x400/000000/FFFFFF/png?text=Call+To+Arms)
+![Call To Arms](https://coverartarchive.org/release-group/45703340-6107-4155-8060-02090047730f/front)
 
 19/24 is a Call To Arms in my #SexySaxon metal journey!
 
@@ -346,7 +346,7 @@ now playing: Saxon - Afterburner
 
 ---
 
-![Sacrifice](https://placehold.co/400x400/000000/FFFFFF/png?text=Sacrifice)
+![Sacrifice](https://coverartarchive.org/release-group/20c07756-5676-490f-8362-105155551787/front)
 
 20/23 on my #SexySaxon metal journey is Sacrifice
 
@@ -360,7 +360,7 @@ now plaing Saxon - Sacrifice
 
 ---
 
-![Battering Ram](https://placehold.co/400x400/000000/FFFFFF/png?text=Battering+Ram)
+![Battering Ram](https://coverartarchive.org/release-group/88377105-9570-4035-b035-030668548001/front)
 
 21/23 is Saxon's 2015 release Battering Ram
 
@@ -373,7 +373,7 @@ Honestly, I did not expect this in my #SexySexon metal journey!
 
 ---
 
-![Thunderbolt](https://placehold.co/400x400/000000/FFFFFF/png?text=Thunderbolt)
+![Thunderbolt](https://coverartarchive.org/release-group/5d08f190-5253-4a85-9335-6c46dd3cc36e/front)
 
 22/23 Thunderbold from 2018 is the second to last album on my  #SexySaxon metal journey 
 
@@ -395,7 +395,7 @@ What a nice hommage to Lemmy and Motörhead. 🤘
 
 ---
 
-![Carpe Diem](https://placehold.co/400x400/000000/FFFFFF/png?text=Carpe+Diem)
+![Carpe Diem](https://coverartarchive.org/release-group/77864384-2938-455a-8163-532640056622/front)
 
 23/23 Here we are, the grand finale of my #SexySaxon metal journey!
 

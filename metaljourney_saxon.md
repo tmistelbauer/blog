@@ -2,11 +2,11 @@ https://metalhead.club/@derthomas/109348394786461793
 
 ---
 
-![Saxon (1979)](https://coverartarchive.org/release-group/5f94c71e-074e-3d33-98e8-338548660902/front)
-
 It is settled, my next metal journey will be Saxon!
 
-Oh boy, they have an extensive catalogue, I guess this will take ma a while. Nontheless, I will listen to all of their studio albums in chronological order, starting with their 1979 self titled debut Saxon .
+Oh boy, they have an extensive catalogue, I guess this will take ma a while. Nontheless, I will listen to all of their studio albums in chronological order, starting with their 1979 self titled debut Saxon.
+
+![Saxon (1979)](https://lastfm.freetls.fastly.net/i/u/770x0/56ebe38e9b394d5c95b075cf7ed1a37b.jpg#56ebe38e9b394d5c95b075cf7ed1a37b)
 
 First note: Is it just me or does Stallions Of The Highway have a very Motörheady vibe?
 
@@ -14,7 +14,7 @@ First note: Is it just me or does Stallions Of The Highway have a very Motörhea
 
 ---
 
-![Wheels Of Steel](https://coverartarchive.org/release-group/27e6e91b-8403-357b-936f-08d668232b43/front)
+![Wheels Of Steel](https://lastfm.freetls.fastly.net/i/u/770x0/1e5990055de7ca29df2006f274910f11.jpg#1e5990055de7ca29df2006f274910f11)
 
 Round 2 of my #SexySaxon metal journey: we are now in 1980 and the name of the album is Wheels Of Steel.
 
@@ -34,7 +34,7 @@ You can tell that I don't know anything about Saxon 🫣
 
 ---
 
-![Strong Arm Of The Law](https://coverartarchive.org/release-group/d74496e5-ec54-3799-bd96-5a7bbffcd14d/front)
+![Strong Arm Of The Law](https://lastfm.freetls.fastly.net/i/u/770x0/e111a69e5016f5adc0cac083f0608add.jpg#e111a69e5016f5adc0cac083f0608add)
 
 My #SexySaxon metal journey continues with their 2nd 1980 release Strong Arm Of The Law, the 3rd Sacon album.
 
@@ -54,8 +54,6 @@ Princess Of The Night sounds oddly familiar. I don't have it in my lastfm histor
 
 ▶️ [Princess of The Night](https://music.youtube.com/watch?v=Y39TEuFbfjc&feature=share)
 
-<img width="599" height="591" alt="image" src="https://github.com/user-attachments/assets/2e088137-4218-4d42-b0d1-a3af450bbf0c" />
-
 ---
 
 Seems to me that with Denim And Leather Saxon changed their vibe slightly, also, it feels less Motörheady.
@@ -66,7 +64,7 @@ That's a good one BTW:
 
 ---
 
-![Power And The Glory](https://coverartarchive.org/release/abb58455-0b17-4b8e-a332-ea4b37866969/front)
+![Power And The Glory](https://lastfm.freetls.fastly.net/i/u/770x0/da6c63bb274347a88544d3080600af43.jpg#da6c63bb274347a88544d3080600af43)
 
 5/23 is Power And The Glory from 1983.
 

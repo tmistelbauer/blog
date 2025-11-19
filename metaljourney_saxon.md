@@ -1,5 +1,3 @@
-
-
 This blog post is the unrolled, uncluttered and updated version of my [#SexySaxon Metal Journey 🔗](https://metalhead.club/@derthomas/109348394786461793)
 
 ---
@@ -13,8 +11,6 @@ Oh boy, they have an extensive catalogue, I guess this will take ma a while. Non
 First note: Is it just me or does Stallions Of The Highway have a very Motörheady vibe?
 
 ▶️ [Stallions of the Highway on YouTube Music](https://music.youtube.com/watch?v=uR2W4m5AlCg)
-
----
 
 ![Wheels Of Steel](https://lastfm.freetls.fastly.net/i/u/770x0/1e5990055de7ca29df2006f274910f11.jpg#1e5990055de7ca29df2006f274910f11)
 
@@ -32,8 +28,6 @@ You can tell that I don't know anything about Saxon 🫣
 
 ▶️ [747 (Strangers in the Night) on YouTube Music](https://music.youtube.com/watch?v=mSMWwEtoLx4&feature=share)
 
----
-
 ![Strong Arm Of The Law](https://lastfm.freetls.fastly.net/i/u/770x0/e111a69e5016f5adc0cac083f0608add.jpg#e111a69e5016f5adc0cac083f0608add)
 
 My #SexySaxon metal journey continues with their 2nd 1980 release **Strong Arm Of The Law**, the 3rd Sacon album.
@@ -43,8 +37,6 @@ Heavy Metal Thunder is a banger, I can tell!
 Still has strong Motörhead vibes, I guess that will stay?
 
 ▶️ [Heavy Metal Thunder on YouTube Music](https://music.youtube.com/watch?v=wzCTMIjuBTQ)
-
----
 
 ![Denim And Leather](https://coverartarchive.org/release/521d83b6-771d-3392-bad2-4093ec48a607/front)
 
@@ -58,8 +50,6 @@ Seems to me that with Denim And Leather Saxon changed their vibe slightly, also,
 Rough and Ready is a good one by the way:
 
 ▶️ [Rough and Ready on YouTube Music](https://music.youtube.com/watch?v=e-aqAKVX3Yo)
-
----
 
 ![Power And The Glory](https://lastfm.freetls.fastly.net/i/u/770x0/da6c63bb274347a88544d3080600af43.jpg#da6c63bb274347a88544d3080600af43)
 
@@ -78,17 +68,13 @@ Very interesting record so far! Maybe even the best on my #SexySaxon metal journ
 
 ▶️ [Nightmare on YouTube Music](https://music.youtube.com/watch?v=weV_x9pjiiQ)
 
----
-
-![Crusader](https://coverartarchive.org/release-group/00d13ace-8768-38e5-91a3-c5547a97482d/front)
+![Crusader](https://lastfm.freetls.fastly.net/i/u/770x0/62c29afafd554e14b4dc3665dbd97f81.jpg#62c29afafd554e14b4dc3665dbd97f81)
 
 6/23 on my #SexySaxon metal journey is **Crusader**, released in 1984, the year I was born (so it has to be a good one).
 
 Ooh, the title track starts niiiice! I guess with Crusader we are deep in Saxon's Power Metal phase that started with Power And The Glory? Did I get this right?
 
 ▶️ [Crusader on YouTube Music](https://music.youtube.com/watch?v=4AdP6WtYZ9Y)
-
----
 
 ![Innocence Is No Excuse](https://coverartarchive.org/release-group/3c07aba5-8f04-3b97-9daf-eb571099a08b/front)
 
@@ -101,9 +87,7 @@ Yep, Saxon's Innocence Is No Excuse is as 80s as its album cover.
 
 ▶️ [Innocence Is No Excuse on YouTube Music](https://music.youtube.com/watch?v=xNbB1bqgd-k)
 
----
-
-![Rock The Nations](https://coverartarchive.org/release/3451a865-240e-4873-bc36-5b3e43f42963/front)
+![Rock The Nations](https://lastfm.freetls.fastly.net/i/u/770x0/2090861a5bb14c13b4b6d159defa7ff4.jpg#2090861a5bb14c13b4b6d159defa7ff4)
 
 8/23 is Saxon's 1986 release **Rock The Nations**
 
@@ -118,16 +102,13 @@ But Party Til You Puke is actually funny 😂
 
 ▶️ [Party Til You Puke on YouTube Music](https://music.youtube.com/watch?v=JSnh3ooFmIw)
 
----
-
 ![Destiny](https://coverartarchive.org/release-group/77d89dad-32a1-3285-b9c4-1a343b34be8a/front)
 
 Hmmmpf... no, I didn't like Destiny.
 I can see why people might like it though.
 
----
 
-![Solid Ball Of Rock](https://coverartarchive.org/release/b7caab9c-1dd6-4ff9-8b1c-429ce7898aba/front)
+![Solid Ball Of Rock](https://lastfm.freetls.fastly.net/i/u/500x500/888b4fd0e4fad4387d9c1b3645606373.jpg)
 
 10/23 we fast forward 3 years and are now at Saxon's 1991 release **Solid Ball Of Rock**. God, I hope they changed the direction, the previous 2-3 albums were... meh. The title track sounds very promising so far!
 
@@ -138,8 +119,6 @@ Are there any veteran Saxon fans in here? How did you feel about the album when 
 
 ▶️ [Baptism of Fire on YouTube Music](https://music.youtube.com/watch?v=FtgBIX2DykE&feature=share)
 
----
-
 ![Forever Free](https://coverartarchive.org/release-group/e2925f29-269b-31d4-929c-492b10125c2a/front)
 
 11/23 of my #SexySaxon metal journey is **Forever Free**, which continues the path taken with Solid Ball Of Rock. 
@@ -148,8 +127,6 @@ Edgy, I like it 🤘
 ▶️ [Forever Free on YouTube Music](https://music.youtube.com/watch?v=kjjadjwM6UE)
 
 Oh, I just learned that Forever Free was (partly) recorded in Vienna, Austria.Looks like Saxon pretty much flew under the radar in the 90s. What a shame, Solid Ball Of Rock and Forever Free are really fun 🤘 
-
----
 
 ![Dogs Of War](https://coverartarchive.org/release-group/0a547a75-b2a8-341a-8f14-69293e6de28c/front)
 
@@ -164,9 +141,7 @@ Ok, Saxon's Dogs Of War is not bad, but it feels like they lost the momentum the
 
 Let's hear why...
 
----
-
-![Unleash The Beast](https://coverartarchive.org/release-group/6b388830-2049-3141-a49b-012421221055/front)
+![Unleash The Beast](https://lastfm.freetls.fastly.net/i/u/500x500/224ade575189a78a2dbaab4361c6a343.jpg)
 
 13/23 of my #SexySaxon metal journey is **Unleash The Beast** from 1997.
 
@@ -181,8 +156,6 @@ I didn't like the ballads though, but the closer is killer track!
 
 ▶️ [All Hell Breaking Loose on YouTube Music](https://music.youtube.com/watch?v=mLTOhGyUOeM)
 
----
-
 ![Metalhead](https://coverartarchive.org/release-group/743e5f1a-18e6-32d4-891b-25efe31a5ab3/front)
 
 14/23 Metalhead marks Saxon's last record of the 20th century.
@@ -194,8 +167,6 @@ From what I learn from Wikipedia, things started to improve record sale wise... 
 I really like that with Metalhead Saxon got much heavier. Piss Off for example is a great heavy tune 🤘 
 
 ▶️ [Piss Off on YouTube Music](https://music.youtube.com/watch?v=xGWj2_1Xztk)
-
----
 
 ![Killing Ground](https://coverartarchive.org/release/7b8ed737-b5ce-3c2b-955b-9727720f7a0d/front)
 
@@ -211,9 +182,7 @@ Saxon fun fact: Killing Ground was their first album that entered the French cha
 
 ▶️ [Dragons Lair on YouTube Music](https://music.youtube.com/watch?v=d6p_KhY_Yhs)
 
----
-
-![Lionheart](https://coverartarchive.org/release-group/e5710860-4157-3537-87e0-41a357323606/front)
+![Lionheart](https://lastfm.freetls.fastly.net/i/u/500x500/9ac66859768b2e311494f3775b82635e.jpg)
 
 16/23 on my #SexySaxon metal journey is Saxon's 2004 release **Lionheart**.
 
@@ -224,8 +193,6 @@ Fun fact: the title is refering to Richard the Lionheart, who was once captured 
 now playing Witchfinder General, which is an absolute banger 🤘 
 
 ▶️ [Witchfinder General on YouTube Music](https://music.youtube.com/watch?v=Gbo0gSqQjhw)
-
----
 
 ![The Inner Sanctum](https://coverartarchive.org/release-group/9c66809f-208c-3a7b-a825-70a546b2f7ba/front)
 
@@ -243,9 +210,7 @@ Here's Attila the Hun coming for you:
 
 ▶️ [Attila the Hun on YouTube Music](https://music.youtube.com/watch?v=4rxzXmXgjpY&feature=share)
 
----
-
-![Into The Labyrinth](https://coverartarchive.org/release-group/5958a408-7255-4c10-b7b0-5a9b1cc0a368/front)
+![Into The Labyrinth](https://lastfm.freetls.fastly.net/i/u/500x500/b0505cba954243748ca9ffe9c8456583.jpg)
 
 18/23 is **Into The Labyrinth** from 2009. This is Saxon's first album that entered the Austrian charts.
 
@@ -253,9 +218,7 @@ This is the second in a row that doesn't contain a title track. Can a song calle
 
 ▶️ [Batallions of Steel on YouTube Music](https://music.youtube.com/watch?v=ocgCnlfUOY4)
 
----
-
-![Call To Arms](https://coverartarchive.org/release-group/45703340-6107-4155-8060-02090047730f/front)
+![Call To Arms](https://lastfm.freetls.fastly.net/i/u/500x500/62c721e0e942bd67170ffc4ca00e06bd.jpg)
 
 19/24 is a **Call To Arms** in my #SexySaxon metal journey!
 
@@ -269,9 +232,7 @@ Oh, that's a good one:
 
 ▶️ [Afterburner on YouTube Music](https://music.youtube.com/watch?v=prJTVP6Gik8)
 
----
-
-![Sacrifice](https://coverartarchive.org/release-group/20c07756-5676-490f-8362-105155551787/front)
+![Sacrifice](https://lastfm.freetls.fastly.net/i/u/500x500/750abfb07eac38b158bd8bf125ae90b3.jpg)
 
 20/23 on my #SexySaxon metal journey is **Sacrifice**
 
@@ -281,9 +242,7 @@ What a great title track!
 
 ▶️ [Sacrifice on YouTube Music](https://music.youtube.com/watch?v=MgXYLKSHKf8&feature=share)
 
----
-
-![Battering Ram](https://coverartarchive.org/release-group/88377105-9570-4035-b035-030668548001/front)
+![Battering Ram](https://lastfm.freetls.fastly.net/i/u/500x500/900bbe1b1fbafe99d24f604cac761b97.jpg)
 
 21/23 is Saxon's 2015 release **Battering Ram**
 
@@ -293,8 +252,6 @@ And what a fucking shame that is, because Battering Ram is something else, WOW!
 Honestly, I did not expect this in my #SexySexon metal journey!
 
 ▶️ [Battering Ram on YouTube Music](https://music.youtube.com/watch?v=x2aKsU3TMTE&feature=share)
-
----
 
 ![Thunderbolt](https://coverartarchive.org/release-group/5d08f190-5253-4a85-9335-6c46dd3cc36e/front)
 
@@ -308,9 +265,7 @@ What a nice hommage to Lemmy and Motörhead. 🤘
 
 ▶️ [They Played Rock And Roll on YouTube Music](https://music.youtube.com/watch?v=FlhlO1U5F5c)
 
----
-
-![Carpe Diem](https://coverartarchive.org/release-group/77864384-2938-455a-8163-532640056622/front)
+![Carpe Diem](https://lastfm.freetls.fastly.net/i/u/500x500/ce1d0c0a4acfc85ea37feb2dee11759a.jpg)
 
 23/23 Here we are, **Carpe Diem**, the grand finale of my #SexySaxon metal journey!
 
@@ -318,9 +273,7 @@ This has been a long ride, it took me 3 full days of exclusively listening to Sa
 
 ▶️ [Grand Finale on YouTube Music](https://music.youtube.com/watch?v=N07ArmWtQw8)
 
----
-
-#SexySaxon metal journey: Epilogue
+# #SexySaxon metal journey: Epilogue
 
 This was intense, 23 Albums in 3 days is no joke. Esp. when you need to work too 😂 
 

@@ -1,6 +1,4 @@
-This blog post is the unrolled, uncluttered and updated version of my [#SexySaxon Metal Journey 🔗](https://metalhead.club/@derthomas/109348394786461793)
-
----
+> This blog post is the unrolled, uncluttered and updated version of my [#SexySaxon Metal Journey 🔗](https://metalhead.club/@derthomas/109348394786461793)
 
 It is settled, my next metal journey will be Saxon!
 
@@ -288,10 +286,17 @@ Power & the Glory was one of my favourites, also Call To Arms and Battering Ram 
 I guess I need some days off until I do another deep dive. 
 But I will do anohter one! 🤘
 
-# Update 1: Hell, Fire And Damnation
+# Update (2025-11-19)
+
+## Hell, Fire And Damnation
 
 ![Hell, Fire And Damnation](https://lastfm.freetls.fastly.net/i/u/500x500/78e9c47ef2ede35d7a41361c2dd86b4e.jpg)
 
-# Update 2: Where are we today?
+Hell, Fire and Damnation was released about a year after I finished this metal journey. I immediately liked it, although I found some of the themes and lyrics a bit weird (looking at *There's Something in Roswell*). It ended up being #23 on my AOTY of 2024 list, which was actually good. Overall I liked it much better than *Carpe Diem* and it continues the streak of very strong albums that started with Afterburner.
 
+▶️ [Super Charger](https://song.link/y/ca3Og17BrDA)
+
+## Where are we today?
+
+I didn't listen to Saxon much following my metal journey with the exception of Hell, Fire and Damnation of course. However I kept returning to the songs **Afterburner** and **Battering Ram** a couple of times.
 

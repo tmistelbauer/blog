@@ -287,3 +287,11 @@ Power & the Glory was one of my favourites, also Call To Arms and Battering Ram 
 
 I guess I need some days off until I do another deep dive. 
 But I will do anohter one! 🤘
+
+# Update 1: Hell, Fire And Damnation
+
+![Hell, Fire And Damnation](https://lastfm.freetls.fastly.net/i/u/500x500/78e9c47ef2ede35d7a41361c2dd86b4e.jpg)
+
+# Update 2: Where are we today?
+
+
